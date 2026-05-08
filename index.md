@@ -1,8 +1,6 @@
-# Ruchir
+**Ruchir**
 
-Writer. Artist. Designer.
-
----
+*Writer. Artist. Designer.*
 
 [Email](mailto:contact.ruchir.online@gmail.com) or find me on:
 
