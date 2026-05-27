@@ -1,10 +1,4 @@
-**Hi, I'm Ruchir** 
-
-I’m an aspiring comic book creator with interests in design, music, and writing.
-
-In past lives, I've made [games](https://yygarchive.org/game/176845), built [websites](https://web.archive.org/web/20121023135840/http://www.kikhub.com/), and [done graphic design for an exhibition company](https://www.behance.net/gallery/172924269/Global-Millets-(Shree-Anna)-Conference).
-
----
+**Ruchir**
 
 [Email](mailto:contact.ruchir.online@gmail.com) or find me on:
 
